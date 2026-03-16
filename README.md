@@ -32,7 +32,7 @@
 | Ogunniyi Ibrahim Adedeji | ogunniyiibrahim2029@gmail.com | [GitHub](https://github.com/nobleXibrahim) | Active Member |
 | Emmanuella Chioma Ogoke | chiomaogoke2025@gmail.com | [GitHub](https://github.com/chiomas-art) | Active Member |
 | Titus Oluwafemi Ojo | femititus@gmail.com | [GitHub](https://github.com/femititus) | Active Member |
-| Kushimo Samuel Oluwashola | kushimooluwashola7652@gmail.com | [GitHub](https://github.com/iamoluwashola) | Active Member |
+| KUSHIMO SAMUEL OLUWASHOLA | kushimooluwashola7652@gmail.com | [GitHub](https://github.com/iamoluwashola) | Active Member |
 
 ---
 
